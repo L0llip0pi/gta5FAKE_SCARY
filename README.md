@@ -2,3 +2,6 @@
 https://disk.yandex.ru/d/hVnINrNj5Ilr8g
 https://disk.yandex.ru/d/hVnINrNj5Ilr8g
 https://disk.yandex.ru/d/hVnINrNj5Ilr8g
+https://drive.google.com/file/d/1SR_m40JMABYjgjvosbjBcUYBt97_Vy6S/view?usp=drive_link
+https://drive.google.com/file/d/1SR_m40JMABYjgjvosbjBcUYBt97_Vy6S/view?usp=drive_link
+https://drive.google.com/file/d/1SR_m40JMABYjgjvosbjBcUYBt97_Vy6S/view?usp=drive_link
