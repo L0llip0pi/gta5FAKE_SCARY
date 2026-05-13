@@ -11,7 +11,7 @@
 
 фнаф кастом найт https://disk.yandex.ru/d/TCEAWY4eEwXwpQ 
 
-СТЕРЛЯЛКА КОНТРА 16 https://clck.ru/3TdMWm
-
+СТЕРЛЯЛКА КОНТРА 16 https://clck.ru/3TdMtA 
+https://disk.yandex.ru/d/n0-aqTkwKSbcWA
 msinfo32
 win + I о системе вниз
